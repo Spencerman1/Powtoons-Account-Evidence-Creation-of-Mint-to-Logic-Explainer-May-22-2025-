@@ -1,2 +1,4 @@
-# Powtoons-Account-Evidence-Creation-of-Mint-to-Logic-Explainer-May-22-2025-
+By proceeding, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law. Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents. This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
+Powtoons-Account-Evidence-Creation-of-Mint-to-Logic-Explainer-May-22-2025-
 This folder contains verified screenshots and a video walkthrough of Spencer Southern’s Powtoons account, documenting the creation of the Mint-to Logic™ explainer video on May 22, 2025. These materials serve as timestamped proof of authorship, production origin, and platform usage.
